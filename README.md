@@ -1,1 +1,1 @@
-# Palestine
+# 🇵🇸 Support Palestine 🇵🇸
